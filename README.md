@@ -1,1 +1,0 @@
-# penetas-telur-unta
